@@ -38,6 +38,4 @@ the program prompts you for inputs on the touch screen
 have fun
 erhard
 
-link
-https://1drv.ms/f/c/9dc6d60a8cb4c333/IgA6WPRihzDrSYAfvo02e-z5AfbVmCMUe-x4pyWj5-OrC9o?e=mXzdaG
 
